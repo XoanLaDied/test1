@@ -20,11 +20,10 @@
 
  
 </details>
+ini semua gratis, jangan pelit ⭐️ ya :D
 
-### Tạo Bởi XoanLaDied(LunarMon26)
+### CARA CREATE XoanLaDied(LunarMon26)
 ```
 > Free Vps
 
 > Form VietNam UwU
-```
-
